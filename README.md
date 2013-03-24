@@ -13,9 +13,13 @@ Nawigacja satelitarna pokazuje mi gdzie jestem: -8.1074 x 114.4349. Za chwilę p
 
 Potem jeszcze raz spojrzenie na nawigację - 6241.93 km dzieli mnie od Flat Island, leżącej nad Mauritiusem. Dokładnie od punktu, który wczoraj dostałem esem. Tam teraz jest o cztery godziny mniej, czyli dopiero minęła północ.
 
-Standard time zone:  UTC/GMT +4 hours
+**MAURITIUS:** Standard time zone:  UTC/GMT +4 hours
 No daylight saving time in 2013
 Time zone abbreviation:	MUT - Mauritius Time
+
+**BALI:** Standard time zone:  UTC/GMT +8 hours
+No daylight saving time in 2013
+Time zone abbreviation:	WITA - Central Indonesian Time
 
 ---
 http://pl.wikipedia.org/wiki/Bali_%28wyspa%29
