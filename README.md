@@ -8,3 +8,5 @@ Są 22 stopnie Celsiusa, wilgotność powietrza 82%, przed chwilą padało. Ciś
 (209°). Prawdopodobieństwo opadów -  60%. Chmury zakrywają 93% nieba. Index UV podawany jest jako 12, ale tutaj nie za bardzo mi się zgadza - za dużo. Zwłaszcza że jeszcze jest noc, słońce ma wstać dopiero dopiero o 5:56 i zajdzie potem o 18:01.
 
 Bali jest wyspą, leżącą tuż obok Jawy (tylko 3 km odległości). Powierzchnia, to 5,6 tys. km², (145 na 80 km), liczba mieszkańców (w 2005 roku) to 3,3 mln. Ale teraz nikogo tutaj nie ma. Jestem sam, nie licząc może flory i fauny. A może to tylko ja myślę, że jestem sam? Przecież ta flora i fauna - ich jest więcej i może to tylko moja pycha podpowiada mi tę pustkę otoczenia?
+
+http://pl.wikipedia.org/wiki/Bali_%28wyspa%29
