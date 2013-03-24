@@ -12,7 +12,7 @@ Bali jest wyspą, leżącą tuż obok Jawy (tylko 3 km odległości). Powierzchn
 Nawigacja satelitarna pokazuje mi gdzie jestem: -8.1074 x 114.4349. Za chwilę podniosę się, pójdę do -8.1072 x 114.4346, to zaledwie 30 metrów dalej, usiądę na piasku i popatrzę na kilka światełek po drugiej stronie wody, na Jawie.
 
 Potem jeszcze raz spojrzenie na nawigację - 6241.93 km (6.59772e-10 lat świetlnych) dzieli mnie od Flat Island, leżącej ponad Mauritiusem. Dokładnie od punktu, który wczoraj dostałem esem. Tam teraz na zegarku jest o cztery godziny mniej, czyli dopiero minęła północ. Umówiliśmy się na dzisiaj, tylko trudno nam jest to „dzisiaj” złapać. Chwilami wymyka się.
-Mauritius jest trochę cieplejszy, są 4 stopnie więcej a niebo nieco zachmurzone, więc niewiele gwiazd będziemy widzieli tej nocy. No i wiatr na Flat Island jest trochę większy - 14 km/h ESE (121°), chociaż różnica właściwie niewielka.
+Mauritius jest trochę cieplejszy, są 4 stopnie więcej a niebo nieco zachmurzone, więc niewiele gwiazd będziemy widzieli tej nocy. No i wiatr na Flat Island jest większy - 14 km/h ESE (121°), chociaż różnica właściwie niewielka.
 
 ---
 **MAURITIUS:** Standard time zone:  UTC/GMT +4 hours
