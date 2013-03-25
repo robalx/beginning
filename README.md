@@ -7,9 +7,9 @@ Na Bali jest teraz 4 rano. Przed chwilą była burza, która nie odpuściła jes
 Są 22 stopnie Celsiusa, wilgotność powietrza 82%, przed chwilą padało. Ciśnienie wynosi 1008 hPa, wiatr 3 km/h SSW
 (209°). Prawdopodobieństwo opadów -  60%. Chmury zakrywają 93% nieba. Index UV podawany jest jako 12, ale tutaj nie za bardzo mi się zgadza - za dużo. Chyba, że indeks UV, jak jest wysoki, to nic nie oznacza. Nie wiem zresztą. Nie jestem wikipedią. Teraz jest w każdym razie noc, słońce ma wstać o 5:56, a zajdzie potem o 18:01.
 
-Bali jest wyspą, leżącą tuż obok Jawy (tylko 3 km odległości). Powierzchnia 5,6 tys. km², (145 na 80 km), liczba mieszkańców (w 2005 roku), 3,3 mln. Ale teraz nikogo tutaj nie ma. Jestem sam, nie licząc może flory i fauny. A może tylko ja myślę, że jestem sam? Przecież ta flora i fauna - ich jest więcej i może tylko moja pycha podpowiada mi tę pustkę otoczenia?
+Bali jest wyspą, leży tuż obok Jawy - tylko 3 km - to niewiele. Powierzchnia 5,6 tys. km² (145 na 80 km), liczba mieszkańców (w 2005 roku), 3,3 mln - tako rzecze wiki. Ale teraz nikogo tutaj nie ma. Jestem sam, nie licząc flory i fauny. A może tylko ja myślę, że jestem sam? Przecież ta flora i fauna - ich jest więcej i może tylko moja pycha podpowiada mi tę pustkę otoczenia?
 
-Nawigacja satelitarna pokazuje mi gdzie jestem: -8.1074 x 114.4349. Za chwilę podniosę się, pójdę do -8.1072 x 114.4346, to zaledwie 30 metrów dalej, usiądę na piasku i popatrzę na kilka światełek po drugiej stronie wody, na Jawie.
+Nawigacja satelitarna pokazuje mi gdzie jestem: -8.1074 x 114.4349. Za chwilę podniosę się, pójdę do -8.1072 x 114.4346, to tylko 30 metrów dalej, usiądę na piasku i popatrzę przed siebie na światła po drugiej stronie wody, na Jawie.
 
 Potem jeszcze raz spojrzenie na nawigację - 6241.93 km (6.59772e-10 lat świetlnych) dzieli mnie od Flat Island, leżącej tuż przy Mauritiusie. Dokładnie od punktu, który... który nie wiem skąd wziął mi się. Tam gdzie leży Mauritius, teraz na zegarku jest o cztery godziny mniej, czyli dopiero minęła północ. Czyli też jest już dzisiaj, tylko trudno to „dzisiaj” złapać. Chwilami wymyka się.
 Mauritius jest trochę cieplejszy, są 4 stopnie więcej, a niebo nieco zachmurzone, więc niewiele gwiazd będzie widać tej nocy. No i wiatr na Flat Island jest większy - 14 km/h ESE (121°), chociaż różnica właściwie niewielka.
