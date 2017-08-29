@@ -3,10 +3,10 @@ beginning
 
 **Ślimaki wypełzają w porannej rosie**
 
-Na Bali jest teraz 4 rano. Przed chwilą była burza, która nie odpuściła jeszcze. Na razie poszła gdzieś, ale czuło się, że wróci niebawem.
+Na Bali jest 4 rano. Przed chwilą burza, nie odpuściła jeszcze. Na razie gdzieś poszła, ale czuje się, że wróci niebawem.
 
-Są 22 stopnie Celsiusa, wilgotność powietrza 82%, przed chwilą padało. Ciśnienie wynosi 1008 hPa, wiatr 3 km/h SSW
-(209°). Prawdopodobieństwo opadów -  60%. Chmury zakrywają 93% nieba. Index UV podawany jest jako 12, ale tutaj nie za bardzo mi się zgadza - za dużo. Chyba, że indeks UV, jak jest wysoki, to nic nie oznacza. Nie wiem. Nie jestem wikipedią. Teraz jest w każdym razie noc, słońce wstanie o 5:56, a zajdzie potem o 18:01.
+Są 22 stopnie Celsiusa, wilgotność powietrza 82%, chwilę temu padało. Ciśnienie 1008 hPa, wiatr 3 km/h SSW
+(209°). Prawdopodobieństwo dalszych opadów -  60%. Chmury zakrywają 93% nieba. Index UV podany jako 12, ale tutaj nie za bardzo się zgadza - chyba za dużo? Chyba, że indeks UV, jak jest wysoki, nic nie oznacza. Nie wiem. Nie jestem wikipedią. Teraz jest w każdym razie noc, słońce wstanie o 5:56, a zajdzie potem o 18:01.
 
 Bali jest wyspą, leży tuż obok Jawy - tylko 3 km - to niewiele. Powierzchnia 5,6 tys. km² (145 na 80 km), liczba mieszkańców (w 2005 roku), 3,3 mln - tako rzecze wiki. Ale teraz nikogo tutaj nie ma. Jestem sam, nie licząc flory i fauny. A może tylko ja myślę, że jestem sam? Przecież ta flora i fauna - ich jest więcej i może tylko moja pycha podpowiada mi tę pustkę otoczenia?
 
